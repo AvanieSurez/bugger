@@ -1,16 +1,13 @@
 # bugger
 Bugger
 Hackerrank
-Bugger
-ahaha
-uchiha
-Good
-tesst
-ahahah
-ahah
+bugee
 hi
-uaha
-pull
-reuq
-check
-hi
+sss
+saa
+aa2
+ssww
+eqwe
+dasd
+d312
+dasddasd
